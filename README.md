@@ -1,4 +1,4 @@
-## 🧑‍💻 Dylan Gordillo 
+## 🧑‍💻 Dylan 
 
 ## 🦀 leguajes de programación || Estudiando
 <p align="left">
